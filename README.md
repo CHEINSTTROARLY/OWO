@@ -1,5 +1,5 @@
 # Looking for the Book  
-by -1
+an incredibly supper album by -1
 
 Links to the music...
 - Spotify: https://open.spotify.com/album/7ohtrJGcXMtqNH2khzdqNm
