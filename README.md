@@ -1,7 +1,4 @@
-# OWO
-yes
-
-Looking for the Book  
+# Looking for the Book  
 by -1
 
 Links to the music...
