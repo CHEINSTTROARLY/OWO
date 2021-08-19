@@ -1,6 +1,9 @@
 # Looking for the Book  
 an incredibly supper album by -1
 
+Petrichor invitation: https://github.com/JonnyGamer/Dots/invitations
+
+
 Links to the music...
 - Spotify: https://open.spotify.com/album/7ohtrJGcXMtqNH2khzdqNm
 - iTunes / Apple Music: https://music.apple.com/us/album/looking-for-the-book/1570621013
